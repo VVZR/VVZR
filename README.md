@@ -1,0 +1,5 @@
+- 👋 Hi, I’m m’I ,iH 👋
+- 👀 I’m interested in three dots
+- 🌱 I’m currently learning AI
+- 💞️ I’m looking to collaborate on mass destruciton
+- 😄 Pronouns: <b>MY GOD BLESS LORD</b>
